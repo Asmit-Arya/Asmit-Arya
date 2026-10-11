@@ -18,4 +18,4 @@ First-year B.Tech Computer Science and Engineering student at **IIIT Naya Raipur
 
 ---
 
-📫 **Connect with me:** [LinkedIn](https://linkedin.com/in/your-username)
+📫 **Connect with me:** [LinkedIn](https://www.linkedin.com/in/asmit-arya/)
